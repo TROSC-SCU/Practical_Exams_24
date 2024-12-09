@@ -8,7 +8,7 @@
 ### Data Base  
 - [Live Session](https://chat.whatsapp.com/EV96mR2dxwt33HttCUnYaj)
 
-
+- [TROSC Session](https://www.youtube.com/watch?v=KIV3qUEOfag)
 ## Second Year 
 
 ### OOP 
